@@ -5,15 +5,18 @@ published: true
 ---
 Is it too late for a New Years Resolution blog post? Probably.
 
-But last year I realised that I'm really bad at doing lots of things well, so instead I'll focus on Just One Thing™. Typically a make a list of things that are nice to haves, then maybe finish one or two of them by the end of the year. 
+Last year I climbed a V6 (!!!!). This was a huge accomplishment and a goal for 2018. Careerwise, I set myself up for great opportunities like PhD programs, research assistantships and even a top-notch internship. I started some successful collaborations resulting in my first two papers. I'm really proud of everything I did in 2018. The thing is, these aren't year long goals. Realistically these took at most a few weeks of really hard work. But what I really want from my yearly goals is a significant impact on my life with a permanent change.
 
-Last year my biggest goal was I climbed a V6 (!!!!). I had a few other fitness achievements such as finishing the Tongariro Crossing really quickly. But overall these weren't things I had to push myself for and work towards. I had some really awesome career accomplishments which are driving some more success right at the start of this year with PhD applications. But honestly these are just a result of me being lucky. I stay fairly active, I'm already in a great program at school with an awesome advisor. 
+I fell short of a few other goals like cutting fat to the point I have visible abs. I really wanted to read more and learn more because I just enjoy learning. And I did start that, I read a textbook from front to back and just really loved every minute of it. I meant to start a meditation practice and write in a journal, there's some scraps of journals and I did meditate maybe 60 days last year. I even wanted a blog. The list goes on and on and on. But that's the problem. It's not that I didn't plan these (I did). It's not that I didn't schedule them (I did). It's not even that I don't really want these things (I DO). But, you'll notice there's a pattern to the goals I fell short of. They're really long term to accomplish, and involve a significant and permanent impact to my life.
 
-I fell short of a few other goals I set such as cutting fat to the point I have visible abs. I really wanted to read more and learn more because I just enjoy learning. I read a textbook from front to back and just really loved every minute of it. I meant to start a meditation practice and write in a journal. I even wanted a blog. The list goes on and on and on. But that's the problem. 
-
-All of those goals are accomplishable, I laid out a plan to get to each one and somewhat of a timeline. But it's just too much. This year I have a different approach and so far I've actually been pretty successful.
+But that kind of goal is *hard*. And I had like 10 of them!! So this year I need something new. 
 
 **Just One Thing.**™
 
-I did make a list of things I wanted this year, but I've already forgotten it (I still want them, especially if I read it again). I've decided instead to revisit this list every time I accomplish my one thing. So far my one thing was swimming. I want to be able to jump off a boat and not think I'm going to drown. I started swimming at my condo pool and it is SO easy. I can't believe it. I can backstroke more than four laps without touching the bottom or sides. So the next step was deep water. My roommate Jad joined diving lessons. I joined diving lessons. And despite being as clumsy as a "fish out of water" in the water, I'm really enjoying them. I did a cool front 
+This year started the same. And now we're in February and the year is already flying by. I HAVE accomplished some more short term things I am very proud of (we can circle back to these later). The thing is, I'm still not getting those long term goals. So it's February and I'm changing my tone.
 
+This year I have only one goal: get better at forming habits. 
+
+I'm not overwhelmed by this goal, I can definitely accomplish it. And it's something really, really important to me. Becoming skilled at habit formation is going to change my life for the better. In fact I've already formed a habit this year with a positive impact. I make my bed. every. single. morning. It's made me so much happier, if I spend 1 minute a day making my bed, I can use my couch as soon as I get home from work and my bed isn't covering the entire living room. Toronto rent is heavy. But sleeping on a pull-out couch in your friends living room isn't.
+
+The nice thing about doing just one thing is that the shorter term goals are still happening. This year I overcame my fear of swimming and I've spent several hours in the pool. I started a new hobby, springboard diving. And I'm well on my way towards accomplishing some other really awesome stuff!
